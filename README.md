@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Unratedxx
-- 👀 I’m interested in Coding 
+- 👀 I’m recently interested in Coding 
 - 🌱 I’m currently learning web developing
 - 💞️ I’m looking for person who can help me to improve my Coding
 - 📫 You can chat me here
